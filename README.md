@@ -7,4 +7,5 @@ https://docs.google.com/document/d/1sY8K0JJK6eZSHcRaiXkGoeO4HFqDE9LYb6v6llFF4kw/
 # Planorism
 https://github.com/YouKnowWhyRadu/Curs-Planorism
 
-#Adunate din Biblie
+# Adunate din Biblie
+[Adunate din Biblie](https://docs.google.com/document/d/1Q25VzHs18m_Y1xxtYtIcTXxqZI7z7C-BfmNMViPGCoE/edit?usp=drive_link)  
