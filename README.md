@@ -6,3 +6,5 @@ https://docs.google.com/document/d/1sY8K0JJK6eZSHcRaiXkGoeO4HFqDE9LYb6v6llFF4kw/
 
 # Planorism
 https://github.com/YouKnowWhyRadu/Curs-Planorism
+
+#Adunate din Biblie
