@@ -7,3 +7,4 @@
 [De salvat pentru mine](https://docs.google.com/document/d/1jVwy30CeXlohBfcGe95bquZxP0jzxUTbWTOnTR3wgRc/edit?usp=sharing)
 
 
+Carpe diem este o expresie dintr-un poem latin scris de Horațiu, ce a devenit în timp un aforism. Popular, expresia este tradusă ca „Trăiește clipa!”. Literal carpe înseamnă „a alege, a selecta, a culege, a strange, a aduna”, dar Horațiu a folosit cuvântul în sensul de „a se bucura, a apuca, folosire, a face uz de”.
