@@ -4,7 +4,10 @@
 [Ce am învățat până acum. Oare?!](https://docs.google.com/document/d/1jq6rwxKAN8BAXuusYFiL3KmgLiho89mj/edit?usp=drive_link&ouid=104222853948391268908&rtpof=true&sd=true)  
 [Jurnal de călătorii](https://docs.google.com/document/d/1sY8K0JJK6eZSHcRaiXkGoeO4HFqDE9LYb6v6llFF4kw/edit?usp=drivesdk)  
 [Planorism](https://github.com/YouKnowWhyRadu/Curs-Planorism)  
-[De salvat pentru mine](https://docs.google.com/document/d/1jVwy30CeXlohBfcGe95bquZxP0jzxUTbWTOnTR3wgRc/edit?usp=sharing)
+[De salvat pentru mine](https://docs.google.com/document/d/1jVwy30CeXlohBfcGe95bquZxP0jzxUTbWTOnTR3wgRc/edit?usp=sharing)  
 
 
+
+
+    
 Carpe diem este o expresie dintr-un poem latin scris de Horațiu, ce a devenit în timp un aforism. Popular, expresia este tradusă ca „Trăiește clipa!”. Literal carpe înseamnă „a alege, a selecta, a culege, a strange, a aduna”, dar Horațiu a folosit cuvântul în sensul de „a se bucura, a apuca, folosire, a face uz de”.
